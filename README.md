@@ -1,4 +1,4 @@
-Exodus Grabber builder here: https://gofile.io/d/MUKzVy
+Exodus Grabber builder here: https://gofile.io/d/WPYtLP
 STARR FOR MORE UPDATES ❤️
 🎄 Auto setup done!
 🌟 Leave a star!!
